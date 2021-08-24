@@ -1,1 +1,1 @@
-# Northwind_Katmanl-_Mimari
+# Northwind_Katmanli_Mimari
